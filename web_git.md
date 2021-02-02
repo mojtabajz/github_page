@@ -28,7 +28,6 @@
 + Being useful to humanity
 
 ![](https://th.bing.com/th/id/OIP.6HfOrBcQCUHrAAOCxWARWAHaMW?pid=Api&w=960&h=1600&rs=1)
-
 Click to contact me.
 + [in github](https://github.com/mojtabajz)
 + [telegram me](https://t.me/mojtabaj_z)
