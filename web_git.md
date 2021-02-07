@@ -2,7 +2,7 @@
 
 ### introduction
 ----------------------------
-##### **Mojtaba Janbaz**
+##### Mojtaba Janbaz
 ##### Computer engineer from the University of Science and technology
 ##### and site designe
 
